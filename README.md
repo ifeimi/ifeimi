@@ -1,4 +1,4 @@
-- 👋 Hi, my name is Yufei Wu. I am a master's student in Molecular & Biological Chemistry at EPFL🇨🇭. 
+- 👋 Hi, my name is Yufei. I am a master's student in Molecular & Biological Chemistry at EPFL🇨🇭. 
 - 👋 Salut! Je m'appelle Yufei. Je suis un étudiant master en chimie à EPFL.
 - ⚽️ Football: Borussia Mönchengladbach, Tottenham Hotspur, Cristiano Ronaldo, Wu Lei. 
 - 🐇 AKB48 Team SH 桂楚楚 推し. 
