@@ -1,5 +1,5 @@
 - 👋 Hi, my name is Yufei. I am a master's student in Molecular & Biological Chemistry at EPFL🇨🇭. 
-- 👋 Salut! Je m'appelle Yufei. Je suis un étudiant master en chimie à EPFL.
+- 👋 Salut! Je m'appelle Yufei. Je suis un étudiant master en chimie à l'EPFL.
 - ⚽️ Football: Borussia Mönchengladbach, Tottenham Hotspur, Cristiano Ronaldo, Wu Lei. 
 - 🐇 AKB48 Team SH 桂楚楚 推し. 
 - 📫 Contact me at yfwu0202@gmail.com. 
