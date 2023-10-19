@@ -1,5 +1,5 @@
 - 👋 Salut! This is a private (non-academic) github account of mine! 
-- 📚 I am a master's student in Chemistry at EPFL🇨🇭. 
-- ⚽️ Football: Borussia Mönchengladbach, Grasshopper Zürich Women. 
-- 🐇 AKB48 Team SH 桂楚楚, AKB48 Team 8 髙橋彩音, HKT48 矢吹奈子 推し. 
+- 📚 With a MSc degree from EPFL🇨🇭, I get to call my self a "chimiste"! 
+- ⚽️ Football: Borussia Mönchengladbach. 
+- 🐇 AKB48 Team SH 桂楚楚, AKB48 Team 8 髙橋彩音 推し. 
 - 📫 Contact me at yfwu0202@gmail.com. 
