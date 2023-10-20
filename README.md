@@ -2,4 +2,4 @@
 - 📚 With a MSc degree from EPFL🇨🇭, I get to call my self a "chimiste"! 
 - ⚽️ Football: Borussia Mönchengladbach. 
 - 🐇 AKB48 Team SH 桂楚楚, AKB48 Team 8 髙橋彩音 推し. 
-- 📫 Contact me at yfwu0202@gmail.com. 
+- 📫 Contact me at ifeimi48@gmail.com. 
